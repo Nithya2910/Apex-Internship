@@ -176,7 +176,7 @@ B.Tech Student | Web Development Intern
 
 GitHub: https://github.com/Nithya2910
 
-LinkedIn: https://linkedin.com/in/your-profile
+LinkedIn: https://linkedin.com/in/nithya-santhoshini-thangellapelli-a62b9634a
 
 ---
 
